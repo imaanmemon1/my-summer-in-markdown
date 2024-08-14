@@ -1,8 +1,9 @@
 # Summer 2024 :P
 ## About me
 * My name is Imaan Memon.
-* I'm in my senior year of High school.
-* 
+* I'm in my senior year (12th grade) of High School, class of 2025.
+* I have a strong interest in science, biology specifically.
+* In the future, I plan to persue a degree in Biomedical Engineering or Human Biology.
 ## Vacations
 We decided to take a vacation to San Francisco after I spent the summer seeing my brother at Stanford. We saw many breathtaking sights and had many unforgettable encounters on our vacation. We began our journey by taking a leisurely stroll around Fisherman's Wharf, where the vibrant ambiance, quaint stores, and irresistible scent of freshly caught seafood enthralled us. We made sure to sample some of the delicious seafood specialties that the area had to offer. We next went to Golden Gate Park's Japanese Tea Garden. The calm and well-kept garden offered a tranquil diversion from the bustle of the city. We relished the peace of the tea house, strolling down the meandering walks and taking in the views of the koi ponds. Getting to ride the renowned cable car and the cutting-edge Waymo self-driving car for the first time was one of the highlights of our trip. Enjoying the breathtaking sights and a glimpse of San Francisco's past, taking the cable car was a nostalgic trip through the city. The Waymo self-driving car, on the other hand, offered a glimpse into the future of transportation, and it was amazing to watch how well the technology functioned in the city. Compared to LA, we were blessed with the perfect weather, which made our trip even more enjoyable. 
 ![IMG_1414](https://github.com/user-attachments/assets/7d2efd83-9127-47bd-a653-23ad236f34a4)
