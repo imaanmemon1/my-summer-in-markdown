@@ -17,6 +17,7 @@ I spent the summer volunteering at Kaiser Permanente with two of my friends. Our
 
 ## Fav Summer food!!!!
 UGHHHH I'm a foodie and I love love love trying out food from different cultures and just trying new things. but during the summer I tried making sushi at home it wasnt the best looking wise but it tasted really really good. But during the summer I ate sushi and ramen so much. Ramen is chef's kiss. Sushi i usually eat at a resturant called Agua Chiles Sushi Bar. 
+
 ![image](https://github.com/user-attachments/assets/9cf1ba91-7d2b-4ff7-a316-08beaf01af9a)
 
 ## Future Aspirations
