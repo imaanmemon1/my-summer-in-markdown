@@ -16,7 +16,7 @@ We decided to take a vacation to San Francisco after I spent the summer seeing m
 I spent the summer volunteering at Kaiser Permanente with two of my friends. Our activity was a great way for us to bond and was also quite satisfying. We would come together every day at 2:00 PM to share a 45 minute break. We used these breaks to unwind, talk, and spend quality time with each other, which turned them into the highlights of our days. During our breaks we went to the cafeteria to get a little snack and find a spot to sit and talk, it not only made our day enjoyable but made us closer. 
 
 ## Fav Summer food!!!!
-UGHHHH I'm a foodie and I love love love trying out food from different cultures and just trying new things. but during the summer I tried making sushi at home it wasnt the best looking wise but it tasted really really good. But during the summer I ate sushi and ramen so much. Ramen is chef's kiss. Sushi i usually eat at a resturant called Agua Chiles Sushi Bar. 
+I'm a foodie through and through, who enjoys sampling cuisine from throughout the world. I made sushi at home this summer, it wasn't the prettiest, but it tasted amazing. I also had a lot of sushi and ramen, specifically ate Buldak Ramen (Chef's kiss). Agua Chiles Sushi Bar is my favorite place for sushi. My favorite part of the summer has been trying out various dishes, my favorite one was an indian styled pasta from Rasraj in Artesia. 
 
 ![image](https://github.com/user-attachments/assets/9cf1ba91-7d2b-4ff7-a316-08beaf01af9a)
 
